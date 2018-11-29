@@ -1,0 +1,3 @@
+# Atom
+
+El Átomo o simplemente The Atom es un nombre compartido por varios superhéroes de la editorial DC Comics. Hasta el momento ha habido cuatro personajes que han asumido el manto de Atom. El primer Atom de la Edad Dorada, "Al Pratt", fue creado por Ben Flinton y Bill O'Connor y apareció por primera vez en la publicación All-American Comics #19 (octubre de 1940). El segundo Átomo era el Átomo de la Edad de plata, el profesor Ray Palmer el cual apareció en 1961. El tercer Átomo, Adam Cray, era un presente de menor carácter en historias de "El Escuadrón Suicida". El cuarto Átomo, Ryan Choi, que actualmente posee el manto, debutó en una nueva serie en A New Atom en agosto de 2006. 
